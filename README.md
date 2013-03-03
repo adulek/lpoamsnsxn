@@ -1,0 +1,4 @@
+lpoamsnsxn
+==========
+
+notatki
